@@ -27,14 +27,14 @@ Click on the skin name to download.
 # [AdenPG](https://drive.google.com/file/d/167t1Jd62k17J-3i7j09r0xwxQeMH6o33/view)
 ![](https://osu.ppy.sh/ss/13739131/9a77)
 
-# [mathi-ensalada](https://drive.google.com/open?id=1Db_BWr80sfnjFkObqZJSoAlkdHGntG0g)
-![](https://osu.ppy.sh/ss/12207221)
+# [AdenVarv](https://drive.google.com/file/d/1ywNXNEbKns8xuj1B0DI6ZRv0786I8krQ/view)
+![](https://osu.ppy.sh/ss/13739138/7963)
 
-# [-+ Seoul v9 Personal Skin V3](https://drive.google.com/file/d/1yDVYkrWk6mXR5fs9XBc5JPRlXP6j1gsV/view) 
-![](https://osu.ppy.sh/ss/12207233)
+# [BubbleSkin19-03-10](https://drive.google.com/file/d/1yDVYkrWk6mXR5fs9XBc5JPRlXP6j1gsV/view) 
+![](https://osu.ppy.sh/ss/13739155/ba32)
 
-# [Seoul++ 16-9](https://drive.google.com/open?id=1ZPbhH9RdchAn1L926fuIWa0ygsuYHIQ0) 
-![](https://osu.ppy.sh/ss/12207248)
+# [aprx](https://drive.google.com/file/d/1IRgN_LpM84gAi1eiXTDbYFq3Rji0SxZB/view) 
+![](https://osu.ppy.sh/ss/13739151/3d2d)
 
 
 

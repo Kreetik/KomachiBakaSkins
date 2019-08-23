@@ -15,8 +15,8 @@ Click on the skin name to download.
 # [___bubblemandarkover](https://drive.google.com/file/d/1wu4HeLXLoi4-cn8pZ9FP45sYNYEGe97i/view)
 ![](https://osu.ppy.sh/ss/13739079/d441)
  
-# [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
-![](https://osu.ppy.sh/ss/11966641)
+# [_P](https://drive.google.com/file/d/1oSN3LOcLG-xTUkknRlzYerEoqPvJYWHP/view)
+![](https://osu.ppy.sh/ss/13739105/f946)
 
 # [+1wwsou2netnesonya3](https://drive.google.com/open?id=1bsNRFd2a7Uapk_wm-Ne23AIO5A9v4I8l)
 ![](https://osu.ppy.sh/ss/12207147)

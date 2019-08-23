@@ -12,8 +12,8 @@ Click on the skin name to download.
 # [BubbleBaka 03.19](https://drive.google.com/file/d/1u2G8nK7PY9KE_H-cb6qEjthoz2K10o8Z/view)
 ![](https://osu.ppy.sh/ss/13739069/ee12)
 
-# [-colorbog](https://www.dropbox.com/sh/hmsw5x8y9evhl1y/AABtyrpk_ekIRe6IGdXrB0wxa?dl=0&preview=-+colorbog.osk)
-![](https://osu.ppy.sh/ss/12786189)
+# [___bubblemandarkover](https://drive.google.com/file/d/1wu4HeLXLoi4-cn8pZ9FP45sYNYEGe97i/view)
+![](https://osu.ppy.sh/ss/13739079/d441)
  
 # [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/11966641)
